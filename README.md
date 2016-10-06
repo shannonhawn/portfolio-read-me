@@ -6,7 +6,7 @@
 
 Shannon Hawn is a graphic designer, advertising grad, Pinterest addict and lover of pugs.  She loves smart, beautiful design, photography and illustration. 
 
-- **[Mail](mailto:shannonhawn@hotmail.com)**
+- **[Email](mailto:shannonhawn@hotmail.com)**
 - [Github](https://github.com/shannonhawn)
 - [Behance](https://www.behance.net/hawnsauve)
 
